@@ -1,4 +1,4 @@
-# Privacy PlicyPrivacy Policy
+# Privacy Policy
 Your privacy is important to us. It is our policy to not collect any form data from our users.
 
 This policy is effective as of 5 December 2021 and was last updated on 5 December 2021.
